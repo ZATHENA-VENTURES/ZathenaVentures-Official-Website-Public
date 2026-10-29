@@ -62,7 +62,7 @@ An interconnected digital ecosystem built for modern businesses and creators.
 
 *   **Website:** [zathenaventures.xyz](https://zathenaventures.xyz)
 *   **Email:** support@zathenaventures.xyz
-*   **Phone:** +1 (512) 537-8373
+*   **Phone:** +1 (682) 233-4745
 
 ---
 
